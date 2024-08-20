@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ravi Pasupuleti
 - 👀 I’m interested in Cyber Security
-- 🌱 I’m currently learning Cyber Security at bootcamp, UWA
+- 🌱 I have just completed certificated course in Cyber Security at bootcamp, UWA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: kalravi20@yahoo.com
 - 😄 Pronouns: He, Him
